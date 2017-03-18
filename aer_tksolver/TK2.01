@@ -1,0 +1,22 @@
+; TK2 configuration file
+Use Color:                   Yes
+Slow Redisplay:              No
+Solid Line Headings:         Yes
+Bottom Prompt Line:          Yes
+Check "OK" before Printing:  Yes
+Display Options:             VGA,EGA,CGA,LOWCGA,TEXT
+Model Search Path:           C:\TK2CE
+Printer Information:
+LPT1
+EPSIBM
+9 Pin Dot Matrix printer
+COM1
+POST
+Postscript Laser printer
+File
+HPPLOT
+HPGL Output File
+File
+POST
+/SC for other options
+End of printer information
