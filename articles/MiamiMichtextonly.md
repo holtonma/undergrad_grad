@@ -1,18 +1,71 @@
 # Hockey:  UM vs. MU = T.N.T.!
 By:  Mark Holton
 
-	"...T-N-T!  I'm DYN-O-MITE!..."  This ACDC "pump -up" tune is blasted 40 minutes before every home game as the Miami Hockey Team explodes onto the ice.  The difference at this time last Saturday and Sunday: about 2000 more people were there getting charged to it.  Before no other game does there form a line of faithful fanatics waiting in the cold from the gates of The Goggin to Tallawanda Street.  This gathering, beginning over an hour and a half before the puck is dropped, is in anticipation of the approaching 60 minute, Miami-Michigan War.
+	"...T-N-T!  I'm DYN-O-MITE!..."  This ACDC "pump -up" tune is blasted 40 minutes before every home game as the  
+	Miami Hockey Team explodes onto the ice.  The difference at this time last Saturday and Sunday: about 2000 more  
+	people were there getting charged to it.  Before no other game does there form a line of faithful fanatics  
+	waiting in the cold from the gates of The Goggin to Tallawanda Street.  This gathering, beginning over an hour  
+	and a half before the puck is dropped, is in anticipation of the approaching 60 minute, Miami-Michigan War.
 	
-	The gates open a little earlier for this tradition because of this mob that has gathered.  Inside, an hour before the game starts, sophomore defensemen and 1996-97 all rookie CCHA selection Josh Mizerek, and standout sophomore Dustin Whitecotton kick a hackey sack around as part of their pre-game ritual near the north scoreboard.  This type of closeness to the players is something you don't get at many sporting events, especially with athletes of this caliber.  Since 1980, 95 players have been selected during the NHL entry draft that played for either Miami University or the University of Michigan.  This huge number doesn't include the amount of athletes that have become free agents with NHL  teams while in college-remember a guy last year by the name of Randy Robataille?  This is also not even mentioning the literally countless numbers that have gone on to professional careers in the IHL or AHL.  In this weekend's games, no less than 10 NHL draftees were showcased here in Oxford.  Starting to realize what all the excitement's about?  Oh yeah, one of the guys playing hackey sack five feet from you, Dustin Whitecotton, was the youngest player in Division I hockey last year.  He's still eligible for the draft in case you were wondering.
+	The gates open a little earlier for this tradition because of this mob that has gathered.  Inside, an hour before  
+	the game starts, sophomore defensemen and 1996-97 all rookie CCHA selection Josh Mizerek, and standout sophomore  
+	Dustin Whitecotton kick a hackey sack around as part of their pre-game ritual near the north scoreboard.  This  
+	type of closeness to the players is something you don't get at many sporting events, especially with athletes of  
+	this caliber.  Since 1980, 95 players have been selected during the NHL entry draft that played for either Miami  
+	University or the University of Michigan.  This huge number doesn't include the amount of athletes that have  
+	become free agents with NHL  teams while in college-remember a guy last year by the name of Randy Robataille?  
+	This is also not even mentioning the literally countless numbers that have gone on to professional careers in  
+	the IHL or AHL.  In this weekend's games, no less than 10 NHL draftees were showcased here in Oxford.  Starting  
+	to realize what all the excitement's about?  Oh yeah, one of the guys playing hackey sack five feet from you,  
+	Dustin Whitecotton, was the youngest player in Division I hockey last year.  He's still eligible for the draft  
+	in case you were wondering.
 	
-	You'd need all of Michigan's Yost Arena to hold the dossiers of these two teams' histories.  Michigan marched to regular season CCHA titles in '91-'92, '93-'94, '94-'95, and '96-'97.  Take a wild guess who won the CCHA title in the '92-'93 gap above.  In case you didn't know it was Miami.  While this might have somewhat set some of the history passed down for the present situation, the real rivalry didn't begin until more recently.  1996-97 First Team All-American Dan Boyle relates the origins and some of the reasons:  "I'd say [the rivalry] started a couple, maybe even three years ago. Over the last two years we have been two of the top teams in the conference.  Right now our team has a pretty good thing going, playing very solid lately."  Coach Mark Mazzonleni echoes his senior assistant captain's words saying, "a rivalry develops any time two teams are competitive.  Michigan is perenially a top three team and we've been one of the few teams that have been able to consistently beat them.  It's important to note that a rivalry isn't going to be created unless you can prove you have the ability to beat the other team.  Your guys can get up for a big game, but the spark isn't there for the other team when you're a middle or low-echelon team.  Because of our success over the last two years, these games have certainly heated up."  1994 Edmonton Oiler selection Adam Copeland adds, "It's a lot of different factors.  They're always a top team, and it's always a big conference game, combined with the fact that there's usually a Michigan following, and a packed crowd, creating a great atmosphere."
+	You'd need all of Michigan's Yost Arena to hold the dossiers of these two teams' histories.  Michigan marched to  
+	regular season CCHA titles in '91-'92, '93-'94, '94-'95, and '96-'97.  Take a wild guess who won the CCHA title  
+	in the '92-'93 gap above.  In case you didn't know it was Miami.  While this might have somewhat set some of the  
+	history passed down for the present situation, the real rivalry didn't begin until more recently.  1996-97 First  
+	Team All-American Dan Boyle relates the origins and some of the reasons:  "I'd say [the rivalry] started a couple,  
+	maybe even three years ago. Over the last two years we have been two of the top teams in the conference.  Right  
+	now our team has a pretty good thing going, playing very solid lately."  Coach Mark Mazzonleni echoes his senior  
+	assistant captain's words saying, "a rivalry develops any time two teams are competitive.  Michigan is perenially  
+	a top three team and we've been one of the few teams that have been able to consistently beat them.  It's  
+	important to note that a rivalry isn't going to be created unless you can prove you have the ability to beat  
+	the other team.  Your guys can get up for a big game, but the spark isn't there for the other team when you're a  
+	middle or low-echelon team.  Because of our success over the last two years, these games have certainly heated up."  
+	1994 Edmonton Oiler selection Adam Copeland adds, "It's a lot of different factors.  They're always a top team,  
+	and it's always a big conference game, combined with the fact that there's usually a Michigan following, and a  
+	packed crowd, creating a great atmosphere."
 	
-	The players, as well as fans, are certainly juiced up an extra level for this series.  "You can definitely sense the energy in the locker-room before the game" relates Copeland.  Fellow assistant captain Boyle explains "When you have the first place team coming into your building you're going to have respect for them no matter who they are.  But, yeah, there are a lot of steps we know about that we go through--- Michigan always has a good team.  They're easy to get up for."  Another factor in this budding rivalry is the play of Miami in Ann Arbor.  Yost Ice Arena is an echoing, partisan madhouse, making it exceptionally tough for visiting teams to win there.  "We played them very tough in there building last year despite losing two games" adds Mazzoleni.  The Red and White shocked the Wolverine faithful by jumping out to a 2-0 lead before falling on Jan 24th there last year.  Copeland explains, "it's important for us to establish a presence in their rink as well, but right now we're just concentrating on the next game."
+	The players, as well as fans, are certainly juiced up an extra level for this series.  "You can definitely sense  
+	the energy in the locker-room before the game" relates Copeland.  Fellow assistant captain Boyle explains "When  
+	you have the first place team coming into your building you're going to have respect for them no matter who they  
+	are.  But, yeah, there are a lot of steps we know about that we go through--- Michigan always has a good team.  
+	They're easy to get up for."  Another factor in this budding rivalry is the play of Miami in Ann Arbor.  Yost Ice  
+	Arena is an echoing, partisan madhouse, making it exceptionally tough for visiting teams to win there.  "We played  
+	them very tough in there building last year despite losing two games" adds Mazzoleni.  The Red and White shocked  
+	the Wolverine faithful by jumping out to a 2-0 lead before falling on Jan 24th there last year.  Copeland explains,  
+	"it's important for us to establish a presence in their rink as well, but right now we're just concentrating on  
+	the next game."
 	
-	Prior to March 1st of last year, Michigan had won nine straight against Miami.  However, the Red and White have swept the maize and blue three straight since then, and in convincing fashion.  The crowd has been electrified when Michigan comes to town ever since.  Senior student and hockey fan Paul Spencer explains, "students that follow hockey know the importance of the Michigan game, among others.  But I think also Michigan attracts some fans who don't normally go to the game because of the big name."  The attendance and volume of the crowd definitely has an effect on the home team.  "I don't remember exactly the crowd last year then [March 1st]-all I remember is that it was crazy" says Copeland.  He continues, "As a player you don't listen for, or exactly hear the fans but you're definitely feeling the energy of the crowd while concentrating on the task at hand.  A lot has to do with the crowd.  They were great last weekend." 
+	Prior to March 1st of last year, Michigan had won nine straight against Miami.  However, the Red and White have  
+	swept the maize and blue three straight since then, and in convincing fashion.  The crowd has been electrified  
+	when Michigan comes to town ever since.  Senior student and hockey fan Paul Spencer explains, "students that follow  
+	hockey know the importance of the Michigan game, among others.  But I think also Michigan attracts some fans who  
+	don't normally go to the game because of the big name."  The attendance and volume of the crowd definitely has an  
+	effect on the home team.  "I don't remember exactly the crowd last year then [March 1st]-all I remember is that it  
+	was crazy" says Copeland.  He continues, "As a player you don't listen for, or exactly hear the fans but you're  
+	definitely feeling the energy of the crowd while concentrating on the task at hand.  A lot has to do with the crowd.  
+	They were great last weekend." 
 	
-	This series is stirring up the emotions of the players and fans while rapidly becoming a bonified rivalry.  Those fortunate enough to have more years in Oxford as a student would be missing something if they didn't soak up the atmosphere at one of these games.   The music is a little louder, the Miami congregation a little rowdier, while the shouts of [UM Goalie] "Turco, YOU'RE A SIEVE" are with more passion.  Last but definitely not least, hockey in the CCHA is amazing.  
+	This series is stirring up the emotions of the players and fans while rapidly becoming a bonified rivalry.  Those  
+	fortunate enough to have more years in Oxford as a student would be missing something if they didn't soak up the  
+	atmosphere at one of these games.   The music is a little louder, the Miami congregation a little rowdier, while  
+	the shouts of [UM Goalie] "Turco, YOU'RE A SIEVE" are with more passion.  Last but definitely not least, hockey in  
+	the CCHA is amazing.  
 	
-	Something for hockey fans to be aware of: When asked about other teams in the conference, Coach Mazzonleni informs, "besides Michigan, against Notre Dame, Ohio State, and even Bowling Green I sense the competitiveness in our players."  By the way, Miami plays #1 ranked Michigan State twice this weekend at MSU, and at The Goggin in less than two weeks.  Psst... Coach Mark Mazzoleni played and graduated from MSU in 1980.  Another rivalry?  Get ready for some "T-N-T"!
+	Something for hockey fans to be aware of: When asked about other teams in the conference, Coach Mazzonleni informs,  
+	"besides Michigan, against Notre Dame, Ohio State, and even Bowling Green I sense the competitiveness in our players."  
+	By the way, Miami plays #1 ranked Michigan State twice this weekend at MSU, and at The Goggin in less than two weeks.  
+	Psst... Coach Mark Mazzoleni played and graduated from MSU in 1980.  Another rivalry?  Get ready for some "T-N-T"!
 	
 	
